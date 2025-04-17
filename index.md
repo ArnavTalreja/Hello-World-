@@ -38,7 +38,7 @@ I'm currently studying Math-CS at UCSD.
 
 Here’s an image of me on track:
 
-## **[My Racing Pic](assets/track.jpg)**
+## **[My Racing Pic](assets/IMG_5898826984E5-1.jpeg)**
 
 ---
 
